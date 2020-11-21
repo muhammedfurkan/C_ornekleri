@@ -4,4 +4,4 @@
 
 
 
-> Daha fazla ödev çözümü için [bana](www.github.com/muhammedfurkan) ulaşabilirsiniz
+> Daha fazla ödev çözümü için [bana](https://t.me/By_Azade) ulaşabilirsiniz
